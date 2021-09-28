@@ -1,3 +1,1 @@
-i dont know how to code yet at the time of writing this...
-thinking about learning about coding
-lol
+test
