@@ -1,5 +1,4 @@
-sams the yike and yikes the sam who?
+might learn how to code.
+i draw images and whatnot
 
-sam ytike
-
-YEAH!
+sam yike the yikeuel sams yikes the yikk sammys
